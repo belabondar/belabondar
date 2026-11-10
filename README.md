@@ -29,4 +29,4 @@ Uncomment this section once the repos exist, and pin them on your profile too.
 
 #### Get in touch
 
-[LinkedIn](https://www.linkedin.com/in/YOUR-HANDLE) · 🇩🇪 German (native) · 🇬🇧 English (fluent)
+[LinkedIn](https://www.linkedin.com/in/bela-bondar-948088204/) · 🇩🇪 German (native) · 🇬🇧 English (fluent)
